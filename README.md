@@ -2,7 +2,7 @@
 
 **Fill in the blanks and discover what happens when science meets the supernatural!**
 
-It was a misty October night when Dr. Spanglebottom was working late in their monster genetic engineering laboratory. They had been studying GFP monster-rabbits for 86 months, hoping to make a glowing breakthrough.
+It was a misty June night when Dr. Victor Von Doom was working late in their monster genetic engineering laboratory. They had been studying GFP monster-rabbits for 86 months, hoping to make a glowing breakthrough.
 
 As they sifted through their research notes, something dastardly caught their eye. A petri dish containing eyeballs was evaporating three feet above the lab bench! 
 
